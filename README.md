@@ -1,0 +1,1 @@
+# AI-Training-Program-for-Georgian-Academic-Staff
